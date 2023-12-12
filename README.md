@@ -2,8 +2,6 @@
 a̖̫̗̤͚̣͖͇̫̅b̴̛͉̩̺̲̫͈̠͖̍̂͆̽̃̃ͨc̨̮̘͎̬̟̫͉̪̾͑ͬ̍̽̎͟0̛ͫ̊̍ͫ̅̔̊̿͏̳̤̫͖̜x̶̺̆ͥ͜m̻͐̄̏̓̃ͪ̒̽ȧ̷̴̹̌͐̈́̅̎͜ť͔̣͖̽ͪ̊͌͗́t̷̖̤̣͔̯̜ͬ̈́ͫ̋́̚͟y̵̲̗̙͍͖ͧ̾ͥ̅͜ͅi͖ͩ͒ͥ͐̇͂̑̀c͙͑͆3̶̪̜̺͐ͧ̅̋́̉̾͗ͩ3̡̛͔͍̫̙̺̫͇̫͗ͩͪ̄̇.btc
 <hr>
 
-<h1>џ(ᚖ旦ᚖ)џ</h1>
-
 <p align="left">
   <!-- Typing SVG by abc0xmattyic333 - https://github.com/abc0xmattyic333/readme-typitg-svg -->
   <a href="https://github.com/abc0xmattyic333/readme-typing-svg">
